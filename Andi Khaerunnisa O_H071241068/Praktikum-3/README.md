@@ -1,0 +1,1 @@
+link video asistensi (youtube) : https://youtu.be/aM_x7kOEtDk
