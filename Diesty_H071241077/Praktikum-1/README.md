@@ -1,5 +1,3 @@
-<!-- PUSH ULANG -->
-
 # TUGAS PRAKTIKUM 1 - INSTAGRAM
 
 ## Nama
